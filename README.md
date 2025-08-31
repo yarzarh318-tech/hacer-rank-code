@@ -1,1 +1,0 @@
-# hacer-rank-code
